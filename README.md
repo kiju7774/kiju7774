@@ -6,4 +6,4 @@ Wolny💔 / slow💔
 Fortnite💻 / fort nocy💻
 Monsterki🤡 / monsters🤡
 Jastrzębie-Zdrój💀 / eagles spring💀
-kocham Boga i kanyego westa
+kocham Boga i ye
